@@ -21,13 +21,11 @@ If you’re planning to start your indoor plant journey, here are some of the be
 
 ## [Snake Plant — The Ultimate Beginner-Friendly Plant](https://amzn.to/43qv0PO)
 
-![Image](https://images.openai.com/static-rsc-4/juyCsvD4kudPmNvdIAmGOX9AOW_AgzDmldBZnB_nkoKaAYYY1KwxnWCbzPCVjgpDGoY7nSgUgowIf2DgFWzawbJClMpcACCykMqNyzEAUR1vWYklEys0NVnKg37gTUPxEdGUdfD1DQS6ZGztBO7quBc87X7gHDoXK1otBk2gSM1UAVI1lFGy1dkL-2g8uwsr?purpose=fullsize align="center")
+![Image](https://images.openai.com/static-rsc-4/juyCsvD4kudPmNvdIAmGOX9AOW_AgzDmldBZnB_nkoKaAYYY1KwxnWCbzPCVjgpDGoY7nSgUgowIf2DgFWzawbJClMpcACCykMqNyzEAUR1vWYklEys0NVnKg37gTUPxEdGUdfD1DQS6ZGztBO7quBc87X7gHDoXK1otBk2gSM1UAVI1lFGy1dkL-2g8uwsr?purpose=fullsize align="left")
 
 ![Image](https://images.openai.com/static-rsc-4/rgl43oAK_BH4RC4b3L6DJW3R3rGYFuGX8_y3UNCznIjAyF_jzwUf87lXzhb-suZUfv1sisg5sRpBLiO1wd_GOwdqPcj_J5HG3hoy2DtGJNKiVqgbLZffMGSzsU1PIq-FPTfzh22WWMd3msO3f4S53jXeyx02aAXjyfuBbFNKzA2n5EI4LXon1RINdSQ4J9ws?purpose=fullsize align="center")
 
 ![Image](https://images.openai.com/static-rsc-4/UuOD19Q5S5ifxFJY6F2bOa462OgOoYYqIgGed-iwhDQQP9iW1EzVJz5Z9KVjJoavMcCMWKBlwtsLvlwd9_vtu31F9Z7nSuAsavPNKq_gLmuKLF6wPvDwCvbgNKEw8INVQ95bGKTPJgZC9qZ3p5Mejdje5_qTeijBSU-ez1Ga_zDpSrgUubhgJ-eJ71pxMD1Z?purpose=fullsize align="center")
-
-![Image](https://images.openai.com/static-rsc-4/RQ_-r8KF-f08L3Ozn-C5YPnQGF74NQ4ESgcdN2-deKGyEywde-ptoNjljLVwqS59yKPKuGuCq7cXlnQyJpF1HSsq1JxhLzvEU0TssaSnvf1LuSHbveOpXbn4DMLk_oxa3hrx64R1pTZtrbDcMFlHI_-N3xESYyrCm8zW7IDjIclz0go8ZujuQqCYgzP3T1eg?purpose=fullsize align="center")
 
 ![Image](https://images.openai.com/static-rsc-4/KhRzOQIUmiOsnkr0_W-_gkiBnpFWsnfezEGeCiQ5Ijeatgtupf5HNy7kY2NWce-j61R2K4T1oid9GnhxuBcGT8Q5im4v-Y-SvIP9U9iAjPgQqEWeyAOrpPmP8um3Gler2v02bqJ2IaFGQayIZRLCgqr4khLpgBKQvGyv4OijGBsz8CBDZl4vK_UKi8MbX1Cv?purpose=fullsize align="center")
 
@@ -64,10 +62,6 @@ One of the biggest reasons people love Snake Plants is their air-purifying abili
 
 ![Image](https://images.openai.com/static-rsc-4/qsxok-laZVt0o18trNStm2Copdvg2xbZ2U2nYGtVSOiDwzNpwIS2kGt2GQ42sof8sa6YsFU7Yg09WK0jYzyWmb6ojvbsmqJEw-afEXCnJLIVdecW3HMe729Xz5BuVwU5sSqJgyJmJanMWQvM2JPkAje-CJxW6hfW1epjb2O20_yPktapMouWM27_UgITg3y3?purpose=fullsize align="center")
 
-![Image](https://images.openai.com/static-rsc-4/5eAKE3RaBljYzwqiQW0qDcrLvQaf6ezZ-I878QGhfiwa1Bq9piRzfsqzFcwQ0nJ-GHtj7rU8aZWoI_qI0QrM1o_O5CEP7JFC9F3t_ayytZKIxTL5uz_d_xv5rANNaBf2FpwBVKOcQe9LFSo6eJ3e915bkJWqFlDrXKLa6fhdtjsKsOZp3V4qUEmziuwQLZro?purpose=fullsize align="center")
-
-![Image](https://images.openai.com/static-rsc-4/-NE8_uSyYjfNFY3x0pphdYIAVAvEguitkCm6L0xAz35jHrqidvr8YxODzukuQKKNIPTT7GRtIgkf8UouWhGPsM-MRygbL-W2Ekheuge-oL_zduylAS_jap5vgjT-9I14DCIEEMnoInKLzYD1afHGXVUIX4oNiOTnRGtovoDREnjmbu2u8E_9RE0RzO6iXwPE?purpose=fullsize align="center")
-
 If you want a plant that looks classy and luxurious, the Peace Lily is a perfect choice. Its glossy green leaves and delicate white flowers instantly create a premium hotel-like feel inside your home.
 
 Beyond beauty, Peace Lilies are famous for improving indoor air quality. They can absorb pollutants and help maintain a fresher indoor environment.
@@ -91,15 +85,11 @@ Unlike many flowering plants, Peace Lilies grow well indoors without direct sunl
 
 ![Image](https://images.openai.com/static-rsc-4/GTBDnfcxHV5sts_9I6vC4DoDL7b4WrhP_dkTctmU-Qfy7DzrGjUQ69xmjpitXS-HzY3h8aalskKg226ZK81yXekbdvp2JT71UlEciC37_UIdb3t3_uJd6GjS2kV7rOFv5bcJgK-J1kQrY6h6O7A-Do8db93OIHYVOxG-VxWzALEcsP1nbpayTE9iJ8G8TG4z?purpose=fullsize align="center")
 
-![Image](https://images.openai.com/static-rsc-4/6yaR5vse7-eEJ7xU6-QxYg33Agl5Zkh3Zv_wWHzqWnkPg67YseZGmtvbPN_zhewsgL2h-O_CLDk2c_TXN681QcgiuDPy9XIkn01bB0KqVz3u1uuDBSCtvPcHCbO3W9FraDqCwIuNwfLKRSQVvR1fYnjLgTxiAtklDRfNgnEKl-nQ1EpvALuuEPeyhTP06G3k?purpose=fullsize align="center")
-
 ![Image](https://images.openai.com/static-rsc-4/5CjeZRNiJuiA51JawB_TIz-LVsK9q6qurwB23wMVA6SdYhHV9Ik5In0QHYcU_eWOqB5LPD48rj_scJrqIMPKoQbNoxC_lr6BETTbBK-nb_7wea1jRJ2qZ--g6oMgZgTIaOifDf23bwcLoKPVVz8YEXjGDsUEbW9xIrlB73JCYI2U7zHzov60ceDrrlzIhMbx?purpose=fullsize align="center")
 
 ![Image](https://images.openai.com/static-rsc-4/0RNZ2X4iem91esz09gPmnQD8j162Nj95NyRNcQqKJwQteDHdNiXyLr5EF5XCGf1zpATCnXVcOPN-18r2wu0vbHz-XaEEqUPux_0cPmyF5LT_dDb9hHPvXL0HFk_a12AD73gMlon8pbppLf3gGCeHcAsaHtUf-u9jxtrdgyKGjf-aY3lBGBhJrluQfuQ8H8IY?purpose=fullsize align="center")
 
 ![Image](https://images.openai.com/static-rsc-4/Yj9vPZmPB99IibCHqvZbTDuKjnHCFN9ME9SWqbF7JkAIWCEL4CeTnK9NKp2ogXXKtj9LT_mkAyhdYR0EDP5k4Wsh2B21fZtiQ1X2Z9Zseus7CzMEPJ5yIGoLDC5uaXwnNGWLTufyiZjvc_MgmU2sna1Q7sHfRCN1M9AFRj3zPzpoC3ZebfjibKbJLD2v7hFC?purpose=fullsize align="center")
-
-![Image](https://images.openai.com/static-rsc-4/mBuV9ccQESkHmsdOcO5gy6lEkwox_JTrDOfjS5jvgbFDUxqvn4nLGXrQoCyEglZFE98UKM1vGPXRV4Mxun3bQeLa1ijSW8K_tSoO-smpcXpXI56SaEleQ0z4KKxN3hNeVUgxxz3b84QV7HH_zT873Bhu0HFhtIq0h8aFeutbPdMDooPjQs42WZvwAr4mYrgk?purpose=fullsize align="center")
 
 ![Image](https://images.openai.com/static-rsc-4/_BCGAc6ZQ_EA_yE0xWa5BtQpnGfEr3zp0usxsnic3CfdRh4EatUF-LEQ04sDuhOCe78OipEgX3RQZOWO1XtlIDf8XsuTfwiWzmH-mXmU6v21aJ-G9GHyFHaQyn8PU71Spx4IndnSe8hKlbiDgfqedQ2dueZVKxEheljdFTooOSRgZaL0rtC8a72KBRNmWfeP?purpose=fullsize align="center")
 
